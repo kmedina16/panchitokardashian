@@ -1,2 +1,0 @@
-# panchitokardashian
-me
